@@ -1,4 +1,4 @@
-# Hola! Kingsley here..
+# Hola!
 
 **Land Economist · Construction Management Researcher · Digital Built Environment**
 
